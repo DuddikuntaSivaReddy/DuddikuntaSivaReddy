@@ -1,4 +1,4 @@
-- 👋 Hi, I’m DuddikuntaSivaReddy
+- 👋 Hi, I’m Duddikunta SivaReddy
 - 👀 I’m interested in Software Engineering and Web Development
 - 📫 How to reach me sivareddyduddikunta@gmail.com
 - My Linkedin https://www.linkedin.com/in/sivareddy-duddikunta-3b5992201
